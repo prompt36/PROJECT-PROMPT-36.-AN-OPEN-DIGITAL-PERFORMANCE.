@@ -3,7 +3,7 @@
 
 A cinematic wide shot in 35mm film grain style,  
 Inspired by the raw aesthetics of Hasselblad XPan.  
-A massive, towering neon 3D advertising screen in Tokyo at dusk,  
+A massive, towering neon 3D advertising screen in a sprawling megacity at dusk,  
 Broadcasting a hyper-realistic, pristine, glowing AI-generated avatar  
 With an unnaturally perfect, frozen smile.  
 
